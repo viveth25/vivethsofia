@@ -1,2 +1,2 @@
 # vivethsofia
-Viveth Sofia Segovia Argumedo
+Viveth Sofia Segovia Argumedo.
